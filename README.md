@@ -2,7 +2,7 @@
 - 👀 I’m interested in video editing 
 - 🌱 I’m currently learning graphics designer 
 - 💞️ I’m looking to collaborate on editing 
-- 📫 How to reach me 8220791992
+- 📫 How to reach me 8220791992 (In WhatsApp)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
